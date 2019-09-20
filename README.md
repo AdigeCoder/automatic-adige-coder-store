@@ -1,0 +1,1 @@
+# automatic-adige-coder-store
